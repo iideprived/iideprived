@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **smith.11429@buckeyemail.osu.edu**
 
-- 📄 Know about my experiences [https://herbertsmithjr.com/resumes/may_23_2023/Herbert%20Smith.pdf](https://herbertsmithjr.com/resumes/may_23_2023/Herbert%20Smith.pdf)
+- 📄 Know about my experiences [https://herbertsmithjr.com/resumes/may_23_2023/Herbert%20Smith.pdf](https://herbertsmithjr.com/resumes/sep_9_2023/Herbert%20Smith.pdf)
 
 - ⚡ Fun fact **😉I am probably the better gamer between us 🎮**
 
