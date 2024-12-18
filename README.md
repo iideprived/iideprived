@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **Compose Multiplatform, and how I built my current portfolio with it!**
 
-- 📫 How to reach me **smith.11429@buckeyemail.osu.edu**
+- 📫 How to reach me **dev@herbertsmithjr.com**
 
 - 📄 Know about my experiences [https://herbertsmithjr.com/resumes/may_23_2023/Herbert%20Smith.pdf](https://herbertsmithjr.com/resumes/sep_9_2023/Herbert%20Smith.pdf)
 
